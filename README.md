@@ -7,7 +7,5 @@ ___
 
 - Am studiat in *Gimnaziul Tirsitei*  
 
-***Imi place mult la CUTM***
-
-
+- ***Imi place mult la CUTM***  
 
