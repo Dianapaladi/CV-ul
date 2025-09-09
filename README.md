@@ -1,4 +1,11 @@
 # CV-ul
-# Paladi Diana  
-Ma numesc *Paladi Diana*  
+
+**Paladi Diana**  
+
+___
+
+Am studiat in *Gimnaziul Tirsitei*  
+
+**Imi place mult la CUTM**  
+
 
